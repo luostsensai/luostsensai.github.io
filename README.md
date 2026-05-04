@@ -1,5 +1,5 @@
 # Top Clash节点 | 5月3日18.7M/S|免费V2ray节点/Clash节点/Shadowrocket节点/SSR节点/Singbox节点机场推荐，在线Clash机场梯子购买推荐  更新时间 2026-05-03 12:13:09
-所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://clash-V2ray" target="_blank">点击跳转</a>
+所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://luostsensai.github.io" target="_blank">点击跳转</a>
 
 ## clash使用教程：
 
@@ -9,23 +9,23 @@
 
 ### 免费Clash节点订阅链接
 
-- https://clash-V2ray/uploads/2026/05/0-20260503.yaml
-- https://clash-V2ray/uploads/2026/05/1-20260503.yaml
-- https://clash-V2ray/uploads/2026/05/2-20260503.yaml
-- https://clash-V2ray/uploads/2026/05/3-20260503.yaml
-- https://clash-V2ray/uploads/2026/05/4-20260503.yaml
+- https://luostsensai.github.io/uploads/2026/05/0-20260503.yaml
+- https://luostsensai.github.io/uploads/2026/05/1-20260503.yaml
+- https://luostsensai.github.io/uploads/2026/05/2-20260503.yaml
+- https://luostsensai.github.io/uploads/2026/05/3-20260503.yaml
+- https://luostsensai.github.io/uploads/2026/05/4-20260503.yaml
 
 ### 免费V2ray节点订阅链接
 
-- https://clash-V2ray/uploads/2026/05/0-20260503.txt
-- https://clash-V2ray/uploads/2026/05/1-20260503.txt
-- https://clash-V2ray/uploads/2026/05/2-20260503.txt
-- https://clash-V2ray/uploads/2026/05/3-20260503.txt
-- https://clash-V2ray/uploads/2026/05/4-20260503.txt
+- https://luostsensai.github.io/uploads/2026/05/0-20260503.txt
+- https://luostsensai.github.io/uploads/2026/05/1-20260503.txt
+- https://luostsensai.github.io/uploads/2026/05/2-20260503.txt
+- https://luostsensai.github.io/uploads/2026/05/3-20260503.txt
+- https://luostsensai.github.io/uploads/2026/05/4-20260503.txt
 
 ### 免费Sing-box节点订阅链接
 
-- https://clash-V2ray/uploads/2026/05/20260503.json
+- https://luostsensai.github.io/uploads/2026/05/20260503.json
 
 ## 更多Clash节点订阅 ：
 
