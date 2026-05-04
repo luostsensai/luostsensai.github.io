@@ -5,7 +5,7 @@
 
 <a href="https://www.freeclashnode.com/client/" target="_blank">科学上网详细教程</a> -->
 
-## 订阅链接（免费，但节点少，网络不稳定容易掉网。）：
+## 订阅链接（免费，但节点少，网络不稳定容易掉网。喜欢折腾的可以用）：
 
 ### 免费Clash节点订阅链接
 
@@ -27,7 +27,7 @@
 
 - https://luostsensai.github.io/uploads/2026/05/20260503.json
 
-## 更多Clash节点订阅 ：
+## 更多Clash节点订阅（省事，少折腾） ：
 
 ### 高速机场推荐1【<a href="https://www.112112789.xyz/?code=zXEGedcp" target="_blank">飞鸟加速</a>】
 
