@@ -1,9 +1,9 @@
-# Top Clash节点 | 5月3日18.7M/S|免费V2ray节点/Clash节点/Shadowrocket节点/SSR节点/Singbox节点机场推荐，在线Clash机场梯子购买推荐  更新时间 2026-05-03 12:13:09
-所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://luostsensai.github.io" target="_blank">点击跳转</a>
+# Top Clash节点 | 免费V2ray节点/Clash节点/Shadowrocket节点/SSR节点/Singbox节点机场推荐，在线Clash机场梯子购买推荐
+所有免费clash节点都爬取自网络，请勿用于非法用途 。
 
-## clash使用教程：
+<!-- ## clash使用教程：
 
-<a href="https://www.freeclashnode.com/client/" target="_blank">科学上网详细教程</a>
+<a href="https://www.freeclashnode.com/client/" target="_blank">科学上网详细教程</a> -->
 
 ## 订阅链接：
 
