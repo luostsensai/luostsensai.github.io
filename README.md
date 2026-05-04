@@ -5,7 +5,7 @@
 
 <a href="https://www.freeclashnode.com/client/" target="_blank">科学上网详细教程</a> -->
 
-## 订阅链接：
+## 订阅链接（免费，但节点少，网络不稳定容易掉网。）：
 
 ### 免费Clash节点订阅链接
 
@@ -31,6 +31,7 @@
 
 ### 高速机场推荐1【<a href="https://www.112112789.xyz/?code=zXEGedcp" target="_blank">飞鸟加速</a>】
 
+- 入门版：¥ 15/月付 每月 150G 流量
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://www.112112789.xyz/?code=zXEGedcp" target="_blank">飞鸟加速（点击注册）</a>】
 
@@ -38,30 +39,35 @@
 
 ### 高速机场推荐2【<a href="http://c.xcvpn.me/?code=g9ZTXG1p" target="_blank">星辰VPN</a>】
 
+- 入门版：¥ 8/月付 每月 80G 流量
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="http://c.xcvpn.me/?code=g9ZTXG1p" target="_blank">星辰VPN（点击注册）</a>】
 
 
 ### 高速机场推荐3【<a href="https://www.xiyou666.xyz/?code=Os7jnUBb" target="_blank">西游云</a>】
 
+- 入门版：¥ 9/月付 每月 120G 流量
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://www.xiyou666.xyz/?code=Os7jnUBb" target="_blank">西游云（点击注册）</a>】
 
 
 ### 高速机场推荐4【<a href="https://www.laocunzhang.net/#/register?code=mwJ5ztvR" target="_blank">老村长机场</a>】
 
+- 入门版：¥ 9.9/月付 每月 200G 流量
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://www.laocunzhang.net/#/register?code=mwJ5ztvR" target="_blank">老村长机场（点击注册）</a>】
 
 
 ### 高速机场推荐5【<a href="https://qqq.nfsq.us/#/register?code=ghUYEe0c" target="_blank">农夫山泉</a>】
 
+- 入门版：¥ 15/月付 每月 150G 流量
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://qqq.nfsq.us/#/register?code=ghUYEe0c" target="_blank">农夫山泉（点击注册）</a>】
 
 
 ### 高速机场推荐6【<a href="https://www.dginv.click/#/register?code=9qDCIxws" target="_blank">狗狗加速</a>】
 
+- 入门版：¥ 16.9/月付 每月 160G 流量 (需额外支付手续费，亲测稳定，网速快)
 - 狗狗加速作为第一家上线Hysteria1协议的机场，目前已经全面上线Hysteria2协议；不同于hy1，hy2全面优化了链接速度(0-RTT)，进一步降低延迟；同时使用全新的带宽控制方式；能发挥您带宽的最大潜能！全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://www.dginv.click/#/register?code=9qDCIxws" target="_blank">狗狗加速（点击注册）</a>】
 
